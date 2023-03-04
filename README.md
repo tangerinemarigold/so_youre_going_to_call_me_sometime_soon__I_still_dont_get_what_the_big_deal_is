@@ -5,3 +5,5 @@ so you're going to call me one day, but this year, and we can talk about interes
 
 
 https://twitter.com/the_transit_guy/status/1631170483528802305?s=46&t=PvDoRmsH4qCXJGMIw9-eug this i would like instead of hiking
+
+IThinkHowYouWinThisWholeThingIsToNotLoseYourMind_ImFineIThinkYoureFineJasonLostHisMindSoWasItWorthIt
